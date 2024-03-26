@@ -2,6 +2,8 @@
 
 https://people.ucsc.edu/~msmangel/Wald.pdf
 
+https://en.wikipedia.org/wiki/Abraham_Wald
+
 https://www.penguin.co.uk/books/186911/how-not-to-be-wrong-by-ellenberg-jordan/9780718196042
 
 https://sacramento.newsreview.com/2023/09/28/the-plot-a-years-long-revenge-gambit-involving-a-burglar-a-meth-dealer-and-a-member-of-the-aryan-brotherhood-comes-to-light-in-sacramento/
